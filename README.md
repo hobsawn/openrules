@@ -43,3 +43,27 @@ Existem arquivos preparados para imprimir em papel adesivo e para papel "comum".
 ## SITE OFICIAL
 
 [NOTION](https://www.notion.so/chtl/OPEN-RULES-22703a8637fb4601aa957946e222afec)
+
+---
+
+## DESENVOLVIDO POR
+
+### LETICIA GUNTIN
+
+[Behance](https://www.behance.net/letyguntin)
+
+Twitter @letyguntin
+
+Instagram @letyguntin
+
+
+
+### ROBSON CHOTOLI
+
+[Behance](https://www.behance.net/chotoli)
+
+[Medium](https://chotoli.medium.com)
+
+Twitter @hobsawn
+
+Instagram @chotoli.png
